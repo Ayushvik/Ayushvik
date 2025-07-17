@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Hi, I’m @Ayushvik<br>- 👀 I’m interested in web developent 
+🔭 Hi, I’m @Ayushvik<br>- 👀 I’m interested in web development
 
 
 ## 🌐 Socials:
